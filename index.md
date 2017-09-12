@@ -54,5 +54,5 @@ Kontrol gesture ini juga berlaku jika ingin mengumpulkan produk lain seperti sus
 Dari Neighborhoods kita bertanding dengan kelompok pertanian yang lain, dengan cara siapa yang berhasil menyelesaikan misi paling banyak akan menjadi pemenang.
  Neighborhoods ini juga berbeda-beda, ada yang level rendah, ada juga yang level tinggi.
  Biasanya Neighborhoods kelas atas selalu aktif dan sering menang duel melawan Neighborhoods lain.</p>
-<p align="justify">Secara keseluruhan game ini sangat menyenankgan dan dapat menyita waktu berjam-jam.</p>
+<p align="justify">Secara keseluruhan game ini sangat menyenangkan dan dapat menyita waktu berjam-jam.</p>
 <p align="center"><img src="http://1.bp.blogspot.com/-b6kQKijcrhM/VG2aOxmLpSI/AAAAAAAAAus/85rUxpHhHqg/s1600/Hay%2BDay12.jpg" align="center" width="300"></p>
